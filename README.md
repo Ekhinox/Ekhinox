@@ -9,5 +9,6 @@
 - :relieved: She/her/elle
 - :video_game: My passions are videos games, streaming, e-sport, Formula 1, Legos and travels
 - :checkered_flag: Aside from that I conduct a Talkshow on Twitch about Formula 1 -> twitch.tv/lepitwall
+- 🔗 all my links (portfolio and more) -> https://linktr.ee/Ekhinox
 
 ### See you soon ! :collision: 
